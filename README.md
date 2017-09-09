@@ -1,2 +1,2 @@
 # hello-world
-wishing users to our platform good health and properity
+wishing users to our platform good health and prosperity
